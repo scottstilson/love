@@ -1,2 +1,2 @@
-# love
-A working definition the cardinal virtue
+# love *noun*
+fondness and esteem that lead one to act toward the good of and mutual enjoyment of
