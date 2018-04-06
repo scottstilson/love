@@ -1,2 +1,2 @@
 # love *noun*
-fondness and esteem that lead one to act toward the good of and mutual enjoyment of
+fondness and esteem that lead one to act toward the good of and enjoyment of relationship with
