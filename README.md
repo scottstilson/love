@@ -1,2 +1,2 @@
 # love *noun*
-inclination toward the [good](https://github.com/scottstilson/good) of
+devotion to the thriving of (that has benevolence as its base but reaches its fullest-bodied sense when accompanied and motivated by affection and respect)
