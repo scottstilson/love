@@ -1,2 +1,2 @@
 # love *verb*
-**1** to devote oneself to the flourshing of and the enjoyment of relationship with
+**1** to care about the good of and the enjoyment of relationship with
