@@ -1,2 +1,2 @@
 # love *verb*
-**1** to give an affection- or esteem-based damn about
+**1** to give an esteem-, affection-, or desire-based damn about
