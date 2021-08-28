@@ -1,2 +1,2 @@
 # love *verb*
-**1** to joyfully care for and caringly enjoy
+**1** to care about and enjoy
