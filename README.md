@@ -1,2 +1,2 @@
 # love *verb*
-**1** to care about and rejoice in
+**1** to enjoy and care about
