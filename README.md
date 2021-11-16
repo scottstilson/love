@@ -1,2 +1,2 @@
 # love *verb*
-**1** to feel or manifest self-donating concern for
+**1** to feel or manifest generous concern for
