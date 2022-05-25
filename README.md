@@ -1,2 +1,2 @@
 # love *verb*
-**1** to feel or manifest warmhearted, generous concern for
+**1** to be oriented toward the enjoyment and [good](https://github.com/scottstilson/good) of
