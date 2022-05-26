@@ -1,2 +1,2 @@
 # love *verb*
-**1** to be oriented toward the enjoyment and [good](https://github.com/scottstilson/good) of
+**1** to be oriented toward [good](https://github.com/scottstilson/good) of and, secondarily, the enjoyment of
