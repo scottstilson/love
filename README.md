@@ -1,2 +1,2 @@
 # love *verb*
-**1** to care about the [good](https://github.com/scottstilson/good) of and desire the enjoyment of
+**1** to desire the [good](https://github.com/scottstilson/good) and enjoyment of
