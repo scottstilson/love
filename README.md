@@ -1,2 +1,2 @@
 # love *verb*
-**1** to generously treat as important
+**1** to kindly, generously treat as important
