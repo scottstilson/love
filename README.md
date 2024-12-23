@@ -1,2 +1,2 @@
 # love *verb*
-**1** to want the good of
+**1** to see as important and want the good and exaltation of
